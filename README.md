@@ -1,1 +1,0 @@
-# apple2K-Team
